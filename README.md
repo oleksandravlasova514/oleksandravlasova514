@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 ojlj;.l89оварапр
 <!---
-oleksandravlasova514/oleksandravlsacasova514 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+oleksandravlasova514/oleksandravlsacasova514 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.x
 You can click the Preview link to take a look at your changes.
 --->
 cxvфів
