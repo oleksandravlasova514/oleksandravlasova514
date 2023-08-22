@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @oleksasdacandravlafsdvcxsova514hjv,
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...cvb
 - 🌱 I’m currently learning ..c.czxc
 - 💞️ I’m looking to collaborate oxczn ...
 - 📫 How to resdach me ...иаcvb
