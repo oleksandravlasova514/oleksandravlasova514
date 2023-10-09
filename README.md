@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...cvb
 - 🌱 I’m currently learning ..c.czxcsdfcvxzzxczxczxc
 - 💞️ I’m looking to collaborate oxczn ...lh
-- 📫 How to resdach me ...иаcvb
+- 📫 How to resdach me ...иаcvb nmb
 ojlj;.l89оварапрясчваіваіsdasdasdfasdf
 <!---счмgfsdasd
 oleksandravlasova514/oleksandravlsacasovasda514 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.x
