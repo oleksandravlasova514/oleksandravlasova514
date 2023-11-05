@@ -1,6 +1,6 @@
 - 👋 Hi, I’m cxzczxczxczxc@oleksasdacandravlafsdvcxsovavcv5c cxv1xzczxcxzc4hjvgkhjjk
 - 👀 I’m interested in ...cлпоvbsadcxasdxz
-- 🌱 I’m currently learning ..c.czxcsdfcvxzzxczxczxc
+- 🌱 I’m currently learning ..c.czxcsdфівіфвfcvxzzxczxczxc
 - 💞️ I’m looking to collaborate oxczn ...lh
 - 📫 How to resdach me ...иаcvb nmb
 ojlj;.l89оварапрясчваіваіsdasdasdfasdfascxzcxz
