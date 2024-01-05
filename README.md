@@ -1,6 +1,6 @@
 vdsfdskkk- 👋 Hi, I’m faddascxasdzcxsasdcxhffdhfzczxczxaіфвjівфівіфвhgkgfjhhsdasdczxzcxc@oleksasdacanasdsadsaddasdasdsxcczcxrвіфвіsadasdhasdsdfdsfdsfsadasdsafjggh,ghjkj,ah,jsdфsadasdasdasdвhhbkфівфвфіavlafsdvcxsovasadvcv5hkasdsadasdghjcasdasdasdіфвфівasd мвісмчяasdasdfdgdfgdfgasdsadsadhgiikgasdsdasdcxv1xzczsadasdasdxcxzc4hsdsdsdsvgsdsdasdasdsdsdkhjsdfdsfdsfsdfjasaskfdsfgвавsdfdsfпвапмsadsaсчgfddf
 - 👀 I’m interested in .j,vhg..cлпоvbsadcxasdxzasdfasdf
-- 🌱 I’m currently learning ..c.czxcsdфівіфвfcvxzzxczxczxc
+- 🌱 I’m currently learning фівіфіфвфів..c.czxcsdфівіфвfcvxzzxczxczxc
 - 💞️ I’m looking to collaborate oxczn ...lh
 - 📫 How to resdach me ...иаcvb nmb
 ojlj;.l89оварапрясчваіваіsdasdasdfasdfascxzcxz
